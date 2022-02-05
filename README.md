@@ -1,1 +1,0 @@
-# norayuniaimiejusoh.github.io
